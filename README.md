@@ -1,6 +1,4 @@
 ### Hola 👋, mi nombre es Romina 
-#### Soy diseñadora grafica y multimedial.
-Soy una persona que le gusta los desafíos, responsable y comprometida con mi trabajo.
+#### Soy una apasionada por el diseño y las artes gráficas, entusiasta y emprendedora.
+Me gusta los desafíos, aportar ideas inovadoras y trabajar en equipo.
 
-- 🔭 Estoy trabajando en En T construcciones 
-- 🌱 Estoy aprendiendo marketing digital 

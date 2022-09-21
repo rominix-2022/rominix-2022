@@ -2,9 +2,9 @@
 
 
 ## 🚀 Sobre mí
-Soy una aposionada por el diseño y las artes gráficas,
+Soy una apasionada por el diseño y las artes gráficas,
 entusiasta y emprendedora.
-Me gustan los desafios, aportar ideas inovadoras y
+Me gustan los desafios, aportar ideas innovadoras y
 trabajar en equipo. 
 
 
